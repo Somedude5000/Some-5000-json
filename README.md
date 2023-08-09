@@ -4,7 +4,7 @@
 <h1> Who is Nasir15?</h1>
 <h6> Nasir15 is a user on vrchat who doxxes people, manipulates challenged people, and forces people 
   to do things that they dont want to do or be met with harsh consequences.
-Due to this, Nasir15 has been causing trouble and harming individuals and taking advantage of mentally challenged peoples.
+Due to this, Multiple people are actively working to stop Nasir.
 
 
 
